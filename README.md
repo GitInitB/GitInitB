@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @GitInitB
 - 👀 I’m interested in all the things beyond my understanding
 - 🌱 I’m currently learning things I don't understand
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on soliloquy
+- 📫 How to reach me when you are nearby
 - 😄 Pronouns: is / was / were
 - ⚡ Fun fact: you tell me
 

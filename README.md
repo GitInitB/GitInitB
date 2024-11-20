@@ -2,7 +2,7 @@
 - 👀 I’m interested in all the things beyond my understanding
 - 🌱 I’m currently learning things I don't understand
 - 💞️ I’m looking to collaborate on soliloquy
-- 📫 How to reach me when you are nearby
+- 📫 You can reach me when you are within arms length
 - 😄 Pronouns: is / was / were
 - ⚡ Fun fact: you tell me
 
